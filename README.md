@@ -17,6 +17,6 @@ Can't wait for 2023.
 Countdown!
 
 1. Australia
-2. Singarpore
+2. Singapore
 3. Turkey
 4. Italy
